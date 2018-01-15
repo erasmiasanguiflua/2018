@@ -20,3 +20,17 @@ et des forces locales contre les houtistes ? En quoi ce conflit
 sert-il objectivement Al-Quaida dans la région ? Quelle est la
 politique des Etats-Unis, l’Angleterre et la France ? 
 
+**Contenu**
+
+| 0000 | Introduction |
+| 0930 | Arabie seule en charge de la guerre |
+| 1440 | Objectifs de l'offensive |
+| 2000 | Zaïdisme |
+| 2520 | Faillites de « Tempête décisive » |
+| 2810 | Désastre humanitaire |
+| 3230 | Ancrage djihadiste |
+| 3600 | La question des réfugiés |
+| 3935 | Les défis structurels du Yemen |
+| 4500 | Fin |
+| 4515 | Questions |
+
