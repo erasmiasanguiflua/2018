@@ -22,6 +22,8 @@ politique des Etats-Unis, l’Angleterre et la France ?
 
 **Contenu**
 
+| | |
+|---|---|
 | 0000 | Introduction |
 | 0930 | Arabie seule en charge de la guerre |
 | 1440 | Objectifs de l'offensive |
