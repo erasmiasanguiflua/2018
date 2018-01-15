@@ -7,16 +7,16 @@ Organisé par les Amis de l'Humanité
 
 Avec
 
-- *Didier Fassin* (La vie, mode d'emploi critique, éditions du Seuil),
-- *Serge Paugam* (Ce que les riches pensent des pauvres, éditions du Seuil), et
-- *Sophie Binet*, Secrétaire générale adjointe de l'UGICT-CGT.
+- **Didier Fassin** (La vie, mode d'emploi critique, éditions du Seuil),
+- **Serge Paugam** (Ce que les riches pensent des pauvres, éditions du Seuil), et
+- **Sophie Binet**, Secrétaire générale adjointe de l'UGICT-CGT.
 
 
 À l’occasion de la parution le 11 janvier au Seuil du nouvel essai de
-*Didier Fassin* : /La Vie, mode d’emploi critique/, et à l’automne 2017 de
-celui de *Serge Paugam* coécrit avec *Bruno Cousin*, *Camila Giorgetti*
-et *Jules Naudet* : /Ce que les riches pensent des pauvres/, cette table
-ronde a réuni *Didier Fassin*, *Serge Paugam* ainsi que *Sophie Binet*,
+**Didier Fassin** : *La Vie, mode d’emploi critique*, et à l’automne 2017 de
+celui de **Serge Paugam** coécrit avec **Bruno Cousin**, **Camila Giorgetti**
+et **Jules Naudet** : *Ce que les riches pensent des pauvres*, cette table
+ronde a réuni **Didier Fassin**, **Serge Paugam** ainsi que **Sophie Binet**,
 militante syndicale, pour aborder une question fondamentale : celle
 de l’inégalité des vies, des formes de vie et du traitement inégal des
 vies en termes éthiques et politiques.
@@ -33,13 +33,13 @@ confronter la sacralisation abstraite de la vie humaine comme
 bien suprême universel, au traitement concret et inégal des vies
 précaires, exilées, opprimées.
 
-Aux côtés des deux auteurs, *Sophie Binet*, donne son point de
+Aux côtés des deux auteurs, **Sophie Binet**, donne son point de
 vue de syndicaliste d’expérience sur ces vies inégales, entre idéal
 théorique et pratique empirique.
 
-Table ronde présentée et animée par *Julie Clarini*, journaliste au
+Table ronde présentée et animée par **Julie Clarini**, journaliste au
 Monde, responsable du supplément Idées.
 
-Séance introduite par *Philippe Mourrat*, directeur de la
-Maison des métallos et *Jean-Emmanuel Ducoin*, secrétaire national
+Séance introduite par **Philippe Mourrat**, directeur de la
+Maison des métallos et **Jean-Emmanuel Ducoin**, secrétaire national
 des Amis de l’Humanité, partenaires de la journée.
